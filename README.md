@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @kingm77
-- 👀 I’m interested in programming, cybersecurity and IA
-- 📫 How to reach me kingm7@gmail.com
+- 👀 I’m interested in programming, capital market, cybersecurity and IA
